@@ -279,7 +279,7 @@ vip域名的核心价值，源自其自带的高端专属属性。VIP是大众�
 相关链接推荐：https://vk.com/topic-237649046_63370455
 相关链接推荐：https://vk.com/topic-237649046_63370429
 
-此代码来源：https://github.com/1l7ilncib/wless/blob/main/wless1.md
-相关链接推荐：https://github.com/1l7ilncib/wless/blob/main/wless1.md
-此代码来源：https://github.com/1l7ilncib/wless/blob/main/wless1.md
-此代码来源：https://github.com/1l7ilncib/wless/blob/main/wless1.md
+此代码来源：[https://github.com/1l7ilncib/wless/blob/main/wless1.md](https://github.com/1l7ilncib/wless/blob/main/WUGH.md)
+相关链接推荐：[https://github.com/1l7ilncib/wless/blob/main/wless1.md](https://github.com/1l7ilncib/wless/blob/main/WUGH.md)
+此代码来源：[https://github.com/1l7ilncib/wless/blob/main/wless1.md](https://github.com/1l7ilncib/wless/blob/main/WUGH.md)
+此代码来源：[https://github.com/1l7ilncib/wless/blob/main/wless1.md](https://github.com/1l7ilncib/wless/blob/main/WUGH.md)
